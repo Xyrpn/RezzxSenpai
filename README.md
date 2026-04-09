@@ -1,2 +1,2 @@
-# RezzxSenpai
-Minna-san konniciwa 
+# percobaan
+ntah guabut njink
